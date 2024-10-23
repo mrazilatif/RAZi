@@ -1,1 +1,20 @@
 # RAZi
+hlkjdhc
+dxoh
+dsx
+kch
+dgc 
+sgzx
+idcxg 
+sgx
+hg
+jgk
+fi
+igod
+lgc
+svd[x
+x
+slha
+hl
+klh
+oj
